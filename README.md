@@ -1,9 +1,5 @@
+I want to eat ramen
+I want to eat pinabble
 
 
-sdfsdklfjksld
-ssdfsdf
-
-
-
-
-dfsdfsdfsdfsdfsdfsdfsfsdf# test
+I want to eat ice cream
